@@ -8,4 +8,4 @@ Health care data Analyst
 
 akshaykumarg88@gmail.com
 
-Linkedin profile : 
+Linkedin profile : .
